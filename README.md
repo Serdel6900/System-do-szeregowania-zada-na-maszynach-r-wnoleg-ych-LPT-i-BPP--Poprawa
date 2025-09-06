@@ -1,0 +1,1 @@
+# System-do-szeregowania-zada-na-maszynach-r-wnoleg-ych-LPT-i-BPP--Poprawa
